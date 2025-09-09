@@ -1,3 +1,3 @@
 # Resume
 My resume pdf and link:
-https://sakshee-cv-2026.tiiny.site
+https://drive.google.com/file/d/1Yq6tDG44abvdzzy9MyIuSkz7ZQd_kYVb/view?usp=sharing
